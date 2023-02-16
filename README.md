@@ -2,4 +2,4 @@
 
 :)
 
-Here's everything I have in S23_rewt.
+Here's Lexie's notebook 👾 for S23_rewt.
